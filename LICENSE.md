@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with automatic new token sniper bot | blockchain-scanning + volume-spike-detection, the #1 new token sniper bot. Includes blockchain-scanning and
 
 
 
